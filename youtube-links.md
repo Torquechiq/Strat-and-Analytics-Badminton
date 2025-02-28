@@ -23,10 +23,11 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Hemady Badminton Court
 
+### January 29, 2025
+- **[John Kaizer vs Aljohn Emerald](https://youtu.be/xlqup-0KcEc)**
+- **[John Winona vs Reg Romeo](https://youtu.be/20KqWbQqgzU)**
+- **[Ems John vs Abram Reg](https://youtu.be/JSSYUP3xy8M)**
 
 ## Kalayaan Badminton Court
-
-### 
-## Hemady Badminton Court
 
 **[](https://youtu.be/Z0OeEG1CkTs)**
