@@ -6,11 +6,18 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court
 
-### February 23,2025
+### February 27, 2025
 
-- **[Rya and Abram VS Winona and John](https://youtu.be/yTKFDMS1E2Y)**
-- **[Rya and Abram VS Winona and John](https://youtu.be/yTKFDMS1E2Y)**
-- **[Rya and Abram VS Winona and John](https://youtu.be/yTKFDMS1E2Y)**
+- **[Abram John vs Kath Kaizer](https://youtu.be/E8z_FTCW7V4)**
+- **[Aj Eleonor vs Abram Kaizer](https://youtu.be/dqhkXDZu4VY)**
+- **[John Joven vs Kath Fernan](https://youtu.be/-P13hibcsL4)**
+- **[CJ Kaizer vs Abram Eleonor](https://youtu.be/Z0OeEG1CkTs)**
+- **[Joven Fernan vs John Kaizer](https://youtu.be/RGIfldHkixk)**
+- **[Kath CJ vs Abram AJ](https://youtu.be/0MAmcLOSV6Q)**
+- **[Fernan Eleonor vs John Joven](https://youtu.be/1fkv_EVsems)**
+- **[Fernan John vs Kaizer Joven](https://youtu.be/j5O27aP4F8s)**
+- **[Eleonor Kath vs Kaizer Abram](https://youtu.be/9qwWYUT1ejM)**
+- **[John Fernan vs Joven Kath](https://youtu.be/0g2sW-RGuh4)**
 
 
 
@@ -20,3 +27,5 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 #
 ## Kalayaan Badminton Court
 ## Hemady Badminton Court
+
+**[](https://youtu.be/Z0OeEG1CkTs)**
