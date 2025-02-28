@@ -6,13 +6,17 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court
 
- **[Rya and Abram VS Winona and John](https://youtu.be/yTKFDMS1E2Y)**
+### February 23,2025
 
-  Date: February 13, 2025
+- **[Rya and Abram VS Winona and John](https://youtu.be/yTKFDMS1E2Y)**
+- **[Rya and Abram VS Winona and John](https://youtu.be/yTKFDMS1E2Y)**
+- **[Rya and Abram VS Winona and John](https://youtu.be/yTKFDMS1E2Y)**
 
-  Winner: Team Winona and John 
+
 
 <br />
 <br />
 
 #
+## Kalayaan Badminton Court
+## Hemady Badminton Court
