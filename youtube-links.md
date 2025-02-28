@@ -19,7 +19,6 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Eleonor Kath vs Kaizer Abram](https://youtu.be/9qwWYUT1ejM)**
 - **[John Fernan vs Joven Kath](https://youtu.be/0g2sW-RGuh4)**
 
-#
 
 ## Hemady Badminton Court
 
@@ -28,6 +27,4 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[John Winona vs Reg Romeo](https://youtu.be/20KqWbQqgzU)**
 - **[Ems John vs Abram Reg](https://youtu.be/JSSYUP3xy8M)**
 
-## Kalayaan Badminton Court
 
-**[](https://youtu.be/Z0OeEG1CkTs)**
