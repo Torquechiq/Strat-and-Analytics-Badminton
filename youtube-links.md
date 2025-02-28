@@ -19,13 +19,14 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Eleonor Kath vs Kaizer Abram](https://youtu.be/9qwWYUT1ejM)**
 - **[John Fernan vs Joven Kath](https://youtu.be/0g2sW-RGuh4)**
 
-
-
-<br />
-<br />
-
 #
+
+## Hemady Badminton Court
+
+
 ## Kalayaan Badminton Court
+
+### 
 ## Hemady Badminton Court
 
 **[](https://youtu.be/Z0OeEG1CkTs)**
