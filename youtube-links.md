@@ -6,9 +6,6 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court
 
-<img align="left" width="250" height="180" src=![image](https://github.com/user-attachments/assets/5b1b6f10-7488-47d7-83f9-5d1255bedb49)
-> **[Tara Court Pic]()**
-
 ### February 27, 2025
 
 
