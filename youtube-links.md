@@ -8,6 +8,7 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ### February 27, 2025
 
+- **[Eleonor Abram vs John Kaizer](https://youtu.be/mb1apmNSumI)**
 - **[Abram John vs Kath Kaizer](https://youtu.be/E8z_FTCW7V4)**
 - **[Aj Eleonor vs Abram Kaizer](https://youtu.be/dqhkXDZu4VY)**
 - **[John Joven vs Kath Fernan](https://youtu.be/-P13hibcsL4)**
