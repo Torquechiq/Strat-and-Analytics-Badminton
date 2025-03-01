@@ -20,6 +20,12 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Eleonor Kath vs Kaizer Abram](https://youtu.be/9qwWYUT1ejM)**
 - **[John Fernan vs Joven Kath](https://youtu.be/0g2sW-RGuh4)**
 
+### February 27, 2025
+- **[Abram John vs Emerald Ven](https://youtu.be/TTjkIumaGfY)**
+- **[Popes Ino vs Rya John](https://youtu.be/5Z3PvF9-afw)**
+- **[Ems vs John](https://youtu.be/FGG19k0VhdA)**
+- **[John Romeo vs Anselmo Popes](https://youtu.be/oMLHNids42U)**
+- **[Abram Anselmo vs Emerald John](https://youtu.be/tBKFDd9Nk-s)**
 
 ## Hemady Badminton Court
 
