@@ -27,6 +27,24 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[John Romeo vs Anselmo Popes](https://youtu.be/oMLHNids42U)**
 - **[Abram Anselmo vs Emerald John](https://youtu.be/tBKFDd9Nk-s)**
 
+### February 20, 2025 
+- **[AJ John VS Abram Kaizer](https://youtu.be/AUZdzD0eleM)**
+- **[Abram John Vs AJ Ben](https://youtu.be/RykimHGKfCY)**
+- **[Ben Abram VS Kaizer John](https://youtu.be/4sZKvrFumZI)**
+- **[Ben John Vs Abram Kaizer](https://youtu.be/GTpebVEk6kI)**
+- **[AJ Kaizer vs John Abram](https://youtu.be/ggUCA6XY2-0)**
+- **[Ben John vs Kaizer Aj](https://youtu.be/pmeG5aFyvrE)**
+- **[Abram Kaizer vs Aj John : Match 2](https://youtu.be/iAyZeiWdGfU)**
+- **[Ben Abram vs Kaizer John | Match 2](https://youtu.be/c4nqGlmZUzA)**
+- **[Abram John vs Kaizer Ben](https://youtu.be/2IwSIYPPioI)**
+- **[Abram Kaizer vs Ben John | Match 2](https://youtu.be/nn2a7zlZCRA)**
+
+### February 13, 2025 
+- **[Rya Abram vs Winona John](https://youtu.be/yTKFDMS1E2Y)**
+- **[Winona Abram Vs Kaizer John](https://youtu.be/F9f6vwA3Boo)**
+- **[https://youtu.be/Zg9SnNf5Bh0](https://youtu.be/Zg9SnNf5Bh0)**
+- **[Eleonor John Vs Winona Red](https://youtu.be/L3LWfbfxGS0)**
+
 ## Hemady Badminton Court
 
 ### January 29, 2025
