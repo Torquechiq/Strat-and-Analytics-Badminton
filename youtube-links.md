@@ -4,8 +4,9 @@
 
 Compilation of Badminton footage of Strategy and Analytics team. This is subdivided into different badminton courts for easier browsing. Ur welcome!
 
-## Tara Court ![alt text](https://github.com/user-attachments/assets/5b1b6f10-7488-47d7-83f9-5d1255bedb49)
+## Tara Court 
 
+<img align="right" width="250" height="400" src="https://github.com/user-attachments/assets/5b1b6f10-7488-47d7-83f9-5d1255bedb49">
 
 ### February 27, 2025 
 
