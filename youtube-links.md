@@ -42,7 +42,7 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 ### February 13, 2025 
 - **[Rya Abram vs Winona John](https://youtu.be/yTKFDMS1E2Y)**
 - **[Winona Abram Vs Kaizer John](https://youtu.be/F9f6vwA3Boo)**
-- **[https://youtu.be/Zg9SnNf5Bh0](https://youtu.be/Zg9SnNf5Bh0)**
+- **[Popes John VS Kaizer Jere](https://youtu.be/Zg9SnNf5Bh0)**
 - **[Eleonor John Vs Winona Red](https://youtu.be/L3LWfbfxGS0)**
 
 
