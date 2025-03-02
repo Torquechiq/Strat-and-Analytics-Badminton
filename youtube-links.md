@@ -6,8 +6,6 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court 
 
-<img align="left" width="350" height="700" src="https://github.com/user-attachments/assets/5b1b6f10-7488-47d7-83f9-5d1255bedb49">
-
 ### February 27, 2025 
 
 - **[Eleonor Abram vs John Kaizer](https://youtu.be/mb1apmNSumI)**
