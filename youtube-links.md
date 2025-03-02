@@ -12,8 +12,6 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ### February 27, 2025 
 
-![Tara Court Pic](https://github.com/user-attachments/assets/5b1b6f10-7488-47d7-83f9-5d1255bedb49)
-
 - **[Eleonor Abram vs John Kaizer](https://youtu.be/mb1apmNSumI)**
 - **[Abram John vs Kath Kaizer](https://youtu.be/E8z_FTCW7V4)**
 - **[Aj Eleonor vs Abram Kaizer](https://youtu.be/dqhkXDZu4VY)**
