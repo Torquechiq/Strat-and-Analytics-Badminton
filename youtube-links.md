@@ -6,6 +6,10 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court
 
+<div style="display: flex; justify-content: space-between; align-items: flex-start;">
+  
+  <div>
+
 ### February 27, 2025 
 
 ![Tara Court Pic](https://github.com/user-attachments/assets/5b1b6f10-7488-47d7-83f9-5d1255bedb49)
@@ -46,6 +50,15 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Winona Abram Vs Kaizer John](https://youtu.be/F9f6vwA3Boo)**
 - **[https://youtu.be/Zg9SnNf5Bh0](https://youtu.be/Zg9SnNf5Bh0)**
 - **[Eleonor John Vs Winona Red](https://youtu.be/L3LWfbfxGS0)**
+
+  </div>
+
+  <div>
+    <img width="250" height="300" src="https://github.com/user-attachments/assets/5b1b6f10-7488-47d7-83f9-5d1255bedb49">
+  </div>
+
+</div>
+
 
 ## Hemady Badminton Court
 
