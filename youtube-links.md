@@ -5,6 +5,15 @@
 Compilation of Badminton footage of Strategy and Analytics team. This is subdivided into different badminton courts for easier browsing. Ur welcome!
 
 ## Tara Court 
+### March 06, 2025 
+- **[Popes Elmo vs Emerald Kaizer](https://youtu.be/_xiDUr28yE0)**
+- **[Abram John vs Emerald CJ | Match 1](https://youtu.be/4Y4YRseiIuE)**
+- **[Cj Emerald vs Abram John | Match 2](https://youtu.be/SpsNHIKivDs)**
+- **[Kath Elleo vs Elmo Kaizer](https://youtu.be/XNTfdmnoZS0)**
+ 
+  - 
+- **[]()**
+
 
 ### March 03, 2025 
 - **[Elmo Popes vs Mark Abram](https://www.youtube.com/watch?v=-tr8q7gWETs)**
