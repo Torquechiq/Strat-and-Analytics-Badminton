@@ -7,7 +7,8 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 ## Tara Court 
 
 ### March 03, 2025 
-
+- **[Elmo Popes vs Mark Abram](https://www.youtube.com/watch?v=-tr8q7gWETs)**
+- **[Kaizer Winona vs Popes Elmo feat nagdidrills sa other court](https://www.youtube.com/watch?v=uegujO3D-fQ)**
 - **[Ems John vs Kaizer Winona](https://youtu.be/kJl98H7DRdI)**
 - **[Popes Elmo vs Romeo Rya](https://youtu.be/cs9H5Zhpizo)**
 - **[Elmo Ems vs John Abram](https://youtu.be/yDEyiNS7c4s)**
