@@ -5,6 +5,19 @@
 Compilation of Badminton footage of Strategy and Analytics team. This is subdivided into different badminton courts for easier browsing. Ur welcome!
 
 ## Tara Court 
+
+### March 09, 2025 
+- **[Abram John vs Ems Reg](https://youtu.be/YI3byb7GKgk)**
+- **[Mendez Brothers vs Abram John](https://youtu.be/XB5E-nc-RrU)**
+- **[Isran Ven vs Abram John](https://youtu.be/BXBnlyxZ37w)**
+- **[Abram John vs Kath Ems](https://youtu.be/QCMgbts2pYI)** **(incomplete footage)*
+- **[Rya Elmo vs Reg Romeo](https://youtu.be/6QY2wqiZ-eU)**
+- **[Cham Kaizer vs Ven Reg](https://youtu.be/ZHhOM5yCDtY)**
+- **[Ems Cham vs Abram John](https://youtu.be/pyrUQCM_WUg)**
+ 
+**[]()**
+
+  
 ### March 06, 2025 
 - **[Popes Elmo vs Emerald Kaizer](https://youtu.be/_xiDUr28yE0)**
 - **[Abram John vs Emerald CJ | Match 1](https://youtu.be/4Y4YRseiIuE)**
