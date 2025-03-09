@@ -10,7 +10,7 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Abram John vs Ems Reg](https://youtu.be/YI3byb7GKgk)**
 - **[Mendez Brothers vs Abram John](https://youtu.be/XB5E-nc-RrU)**
 - **[Isran Ven vs Abram John](https://youtu.be/BXBnlyxZ37w)**
-- **[Abram John vs Kath Ems](https://youtu.be/QCMgbts2pYI)** **(incomplete footage)*
+- **[Abram John vs Kath Ems](https://youtu.be/QCMgbts2pYI)** *(incomplete footage)*
 - **[Rya Elmo vs Reg Romeo](https://youtu.be/6QY2wqiZ-eU)**
 - **[Cham Kaizer vs Ven Reg](https://youtu.be/ZHhOM5yCDtY)**
 - **[Ems Cham vs Abram John](https://youtu.be/pyrUQCM_WUg)**
