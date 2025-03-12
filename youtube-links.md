@@ -4,7 +4,7 @@
 
 Compilation of Badminton footage of Strategy and Analytics team. This is subdivided into different badminton courts for easier browsing. Ur welcome!
 
-## Rally Point Badminton Court 
+## Rally Point Biñan 
 ### March 11, 2025
 - **[Lyka Emerald vs John Rya : Part 1](https://youtu.be/myka5HeT9bo?si=wp2gdo1ZKmsxLeNt)**
 - **[Lyka Emerald vs John Rya : Part 2](https://youtu.be/QGPK8e1gqFU)**
