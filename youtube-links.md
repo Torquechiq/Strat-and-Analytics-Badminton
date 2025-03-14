@@ -28,6 +28,16 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court 
 
+### March 13, 2025  --new upload
+- **[AJ Kaizer vs Abram John](https://youtu.be/pbPCXPnhqLA)** 
+- **[Abram John vs Ben AJ](https://youtu.be/L4jqUdbtOLs)**
+- **[Abram John vs Kaizer Elleo](https://youtu.be/YpTJkR65uqA)**
+- **[John Kaizer vs Abram Popes](https://youtu.be/RGlX0rqag4c)**
+- **[Popes Abram vs Kaizer Elleo](https://youtu.be/rxSd24K2x64)**
+- **[Joven John vs Aj Ben](https://youtu.be/XKvqdp9OgFM)**
+- **[Joven Elleo vs John Abram](https://youtu.be/69tzv7mJBYs)**
+
+
 ### March 09, 2025 
 - **[Abram John vs Ems Reg](https://youtu.be/YI3byb7GKgk)**
 - **[Mendez Brothers vs Abram John](https://youtu.be/XB5E-nc-RrU)**
