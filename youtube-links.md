@@ -6,8 +6,24 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
+### March 17, 2025  
+- **[Ems John vs Abram Elmo](https://youtu.be/U9uAVbSQJhA)**
+- **[Abram John vs Elmo Popes](https://youtu.be/xl8l54rfT6M)**
+- **[Abram Popes vs John Elmo](https://youtu.be/V4tgoiPUsog)**
+- **[Kaizer John vs Anselmo Rya](https://youtu.be/9DTUBwDlos0)**
+- **[Rya Popes vs Kaizer Mark](https://youtu.be/3xz7VUZ_IGk)**
+- **[Elmo Emerald vs Kaizer Abram](https://youtu.be/2hRgKrdJzLc)**
+- **[Rya John vs Popes Mark](https://youtu.be/b81tCE2WcCM)**
+- **[Emerald Rya vs Abram Elmo](https://youtu.be/Pwp68q40_Do)**
+- **[Popes John vs Emerald Abram](https://youtu.be/zw0DKgSFo4I)**
+- **[Kaizer Elmo vs Mark John](https://youtu.be/IYBDVwJkkjE)**
+- **[Elmo Popes vs Emerald Rya](https://youtu.be/R6QCYkkKzsI)**
+- **[Abram Mark vs Kaizer Popes](https://youtu.be/EEpj1yGyTPI)**
 
-### March 13, 2025  --new upload
+**[]()**
+**[]()**
+
+### March 13, 2025
 - **[AJ Kaizer vs Abram John](https://youtu.be/pbPCXPnhqLA)** 
 - **[Abram John vs Ben AJ](https://youtu.be/L4jqUdbtOLs)**
 - **[Abram John vs Kaizer Elleo](https://youtu.be/YpTJkR65uqA)**
