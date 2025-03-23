@@ -6,6 +6,21 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
+
+### March 22, 2025 [ RiskColl Tournament 2025]
+- **[Emerald Kath vs Abram John](https://youtu.be/cSkT4khSW6c?si=D1ArQUv8FQqyIM3j)**
+- **[Mark Joven vs Popes Elmo](https://www.youtube.com/watch?v=jJZcGMaUtxs&list=PLcVzy0lqNCfnIupUuK_RcbSZNzILZ3Oby&index=3&t=593s)**
+- **[Ore Duo vs Popes Elmo](https://youtu.be/gs9J_JIDY3s?si=eARubjQJ9mk8tN5Q)**
+- **[Kevin Jufernan vs Popes Elmo](https://youtu.be/i3VeEePHCiE?si=vWQdcFRWHbA3gU-g)**
+- **[RiskColl Tourna: Ave Michelle vs Abram John | Set 1](https://youtu.be/UlwScOTMu3s)**
+- **[RiskColl Tourna: Abram John vs Ave Michelle | Set 2](https://youtu.be/sycYK9UMjwk)**
+- **[RiskColl Tourna: Winona Rya vs Abram John | Set 1](https://youtu.be/lbjX7e7fdGk)**
+- **[RiskColl Tourna: Winona Rya vs Abram John | Set 2](https://youtu.be/Y7ITuaR1hJU)**
+- **[RiskColl Tourna: Abram John vs Carol Dan](https://youtu.be/TKDixSxJj_U)**
+- **[RiskColl Tourna: Battle for Third | Set 1](https://youtu.be/0wF3xGPB_sI)**
+- **[RiskColl Tourna: Battle for Third | Set 2](https://youtu.be/h8qKWl4RDYQ)**
+  
+
 ### March 17, 2025  
 - **[Ems John vs Abram Elmo](https://youtu.be/U9uAVbSQJhA)**
 - **[Abram John vs Elmo Popes](https://youtu.be/xl8l54rfT6M)**
