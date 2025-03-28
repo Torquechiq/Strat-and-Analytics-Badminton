@@ -6,6 +6,15 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
+### March 27, 2025 
+- **[Kaizer Elleo vs John Popes](https://youtu.be/LRmzl3B6IGE)**
+- **[Elleo John vs Kaizer Abram](https://youtu.be/YTsZ9epgF-A)**
+- **[John Popes vs Abram Elleo](https://youtu.be/DYnYIs-boxA)**
+- **[Popes John vs Elleo Abram](https://youtu.be/QFUuq-G302U)**
+- **[Elleo John vs Kaizer Popes](https://youtu.be/gxXam8MUBQk)**
+- **[Abram John vs Kaizer Popes](https://youtu.be/ih3_yc_FDNo)**
+- **[John Popes vs Kaizer Elleo](https://youtu.be/tJuMJbEhcLo)**
+- **[Elleo John vs Kaizer Popes](https://youtu.be/OZV6lK9loWA)**
 
 ### March 22, 2025 [ RiskColl Tournament 2025]
 - **[Emerald Kath vs Abram John](https://youtu.be/cSkT4khSW6c?si=D1ArQUv8FQqyIM3j)**
