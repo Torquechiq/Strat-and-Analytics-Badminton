@@ -6,6 +6,18 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
+### March 30, 2025 
+- **[Abram John vs Ven Cham | Match 1](https://youtu.be/EZ3MhP2svu0)**
+- **[Pau Kenneth vs John Kaizer](https://youtu.be/EZ3MhP2svu0)**
+- **[Ems Isran vs Abram John | Set 1](https://youtu.be/ZChdJQ2daT4)**
+- **[Emerald Isran vs Abram John | Set 2](https://youtu.be/_J6NRWZaGLo)**
+- **[John Abram vs Ven Cham | Match 2](https://youtu.be/DdYth9UKkeA)**
+- **[Aljohn Ino vs Romeo Kaizer](https://youtu.be/QdgUmVaoiTQ)**
+- **[Best Pair vs Segmentation](https://youtu.be/Qt1eT3lVoJg?si=GViNHzd5i3EW0m_x)**
+- **[Mendez bros vs Best Pair](https://youtu.be/TJ4nlvqrI2s?si=nZI8pUdp02_L9fCq)**
+
+
+
 ### March 27, 2025 
 - **[Kaizer Elleo vs John Popes](https://youtu.be/LRmzl3B6IGE)**
 - **[Elleo John vs Kaizer Abram](https://youtu.be/YTsZ9epgF-A)**
