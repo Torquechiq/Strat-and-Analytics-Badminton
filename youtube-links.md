@@ -6,6 +6,19 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
+### April 03, 2025
+- **[Rya John vs Popes Abram](https://youtu.be/BVHaZv6Cou8)**
+- **[Anselmo Winona vs Ino Kaizer](https://youtu.be/tIqXx7eQHfA)**
+- **[Joven Ems vs John Abram](https://youtu.be/g1L6DrckyjA)**
+- **[Winona Ino vs Popes Kaizer](https://youtu.be/WCygtKtXOho)**
+- **[Abram Aljohn vs Romeo Winona](https://youtu.be/2dl9Gw66WOw)**
+- **[John Joven vs Emerald Pat](https://youtu.be/oCRvFBlkBYg)**
+- **[Elmo Popes vs Winona Kaizer](https://youtu.be/hd1IxIzOBiM)**
+- **[Rya Pat vs Ino Aljohn](https://youtu.be/qJRLV-_4siI)**
+- **[Abram Joven vs John Emerald](https://youtu.be/CaoCV0AoxyQ)**
+- **[Anselmo Winona vs Romeo Aljohn](https://youtu.be/1WmVTRGj_ZQ)**
+
+
 ### March 30, 2025 
 - **[Abram John vs Ven Cham | Match 1](https://youtu.be/sUN6R4wETfA)**
 - **[Pau Kenneth vs John Kaizer](https://youtu.be/EZ3MhP2svu0)**
