@@ -10,7 +10,7 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Rya John vs Popes Abram](https://youtu.be/BVHaZv6Cou8)**
 - **[Anselmo Winona vs Ino Kaizer](https://youtu.be/tIqXx7eQHfA)**
 - **[Joven Ems vs John Abram](https://youtu.be/g1L6DrckyjA)**
-- **[Winona Ino vs Popes Kaizer](https://youtu.be/WCygtKtXOho)**
+- **[Rya Ino vs Popes Kaizer](https://youtu.be/WCygtKtXOho)**
 - **[Abram Aljohn vs Romeo Winona](https://youtu.be/2dl9Gw66WOw)**
 - **[John Joven vs Emerald Pat](https://youtu.be/oCRvFBlkBYg)**
 - **[Elmo Popes vs Winona Kaizer](https://youtu.be/hd1IxIzOBiM)**
