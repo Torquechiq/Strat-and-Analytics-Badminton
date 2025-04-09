@@ -6,6 +6,10 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
+### April 09, 2025
+- **[Romeo Popes vs John JP](https://www.youtube.com/watch?v=6zbm6dM1bOw)**
+
+
 ### April 05, 2025
 - **[Kaizer Ino vs John Popes](https://youtu.be/zzgDfgjl0iw)**
 - **[Kaizer Emerald vs Joven Anselmo](https://youtu.be/9rDU4UkHWwo)**
