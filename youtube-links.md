@@ -6,6 +6,28 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
+### April 05, 2025
+- **[Kaizer Ino vs John Popes](https://youtu.be/zzgDfgjl0iw)**
+- **[Kaizer Emerald vs Joven Anselmo](https://youtu.be/9rDU4UkHWwo)**
+- **[Christian Ven vs Abram John](https://youtu.be/qTRo5CB5esI)**
+- **[Abram John vs Anselmo Winona](https://youtu.be/tJShADJDa5Y)**
+- **[Intan Aljohn vs Ven Kaizer](https://youtu.be/5bOMC_R0-G0?si=Z5Dnu1e1UE6tk3px)**
+- **[Abram John vs Intan Romeo](https://youtu.be/WFYA35dY-BY?si=rArMXYzzsarXWFc5)**
+- **[Pau Ino vs Hype Boys](https://youtu.be/EaXoSQN082A?si=ayyXFXTHEjEOXu8v)**
+- **[Kaiz Liz vs Aljohn Ino](https://youtu.be/9_CqubSuku4?si=JZaLbkyOYgl0TeEY)**
+- **[Elmo Abram vs Romeo Ven (Match 2)](https://youtu.be/yHNfEEpVx1A?si=h_L3wPhtE7r3b9pU)**
+- **[John Kenneth vs Winona Ven](https://youtu.be/BooIPiBMjZ0?si=npzj5LhvyFwFEahh)**
+- **[ElNeth vs InPop then AlPau vs WinDrei](https://youtu.be/4OUSL54UXe8?si=UXZpn43-u8qI0JKr)**
+- **[Kenneth Intan vs Kaiz Ven](https://youtu.be/NW_aDqiDS84?si=LECKYCvqmQvN_sjb)**
+- **[Aljohn Ino vs Fats Intan](https://youtu.be/cn-Rq6wg61M?si=DzIPk2RRQiZSdzsg)**
+- **[Ven John vs Abram Kenneth](https://youtu.be/9rOQQ_x_tiY?si=mulLruKRRhJRx2rG)**
+- **[Andrei Fatima vs Christian Pau](https://youtu.be/3Uc7YXVMzHs?si=vLpoL5xc6_QpBUJy)**
+- **[Popes Pau vs Elmo Andrei](https://youtu.be/qqiF6tlIosE?si=2_7wIwC9AcVi6D5e)**
+- **[Abram Kenneth vs John Romeo](https://youtu.be/S99oXVMmFSc?si=M-2EZRveKcGgZHvV)**
+- **[Elmo Abram vs Romeo Ven](https://youtu.be/BKaNP-0_kw0?si=GnKuvPqwE5nh4UVa)**
+- **[Abram Kaizer vs John Ino](https://youtu.be/SkmiJ5r7kRA?si=ntRcC7XFjZ-P9nU2)**
+
+
 ### April 03, 2025
 - **[Rya John vs Popes Abram](https://youtu.be/BVHaZv6Cou8)**
 - **[Anselmo Winona vs Ino Kaizer](https://youtu.be/tIqXx7eQHfA)**
