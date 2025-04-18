@@ -44,7 +44,7 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Abram Joven vs John Emerald](https://youtu.be/CaoCV0AoxyQ)**
 - **[Anselmo Winona vs Romeo Aljohn](https://youtu.be/1WmVTRGj_ZQ)**
 - **[Kaizer Ino vs John Popes](https://youtu.be/zzgDfgjl0iw)**
-- **[Kaizer Ino vs John Popes](https://youtu.be/9rDU4UkHWwo)**
+- **[Kaizer Emerald vs Joven Anselmo](https://youtu.be/9rDU4UkHWwo)**
 
 
 ### March 30, 2025 
