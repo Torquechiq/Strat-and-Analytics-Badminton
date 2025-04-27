@@ -7,6 +7,32 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court 
 ### April 09, 2025
+- **[Ino Intan vs Aljohn PJ](https://youtu.be/iK58ezN6zc8)**
+- **[Popes John Vs Abram Ven](https://youtu.be/hbcn0K9Pzzo)**
+- **[Liz John vs Ven Aljohn](https://youtu.be/ylw3j4ZD-1s)**
+- **[PJ John vs Intan Kaizer](https://youtu.be/OMyxWfgUPJQ)**
+- **[Tel Ino vs Intan Fats](https://youtu.be/4olfK2lgr4M)**
+- **[Pau Kenneth vs Liz Fats](https://youtu.be/1DynnPSS0L8)**
+- **[Ino Liz vs Popes Tel](https://youtu.be/b7Z1H-qtYrQ)**
+- **[John Ino vs Ven PJ](https://youtu.be/E8McInaiats)**
+- **[Pau Liz vs Popes Tel feat. PJ Kaizer vs Ven Abram](https://youtu.be/FDQrRWwbj1s)**
+- **[PJ Kaizer vs Ven Abram](https://youtu.be/Th7nTDHgLdY)**
+- **[Tel Popes vs Pau Kenneth](https://youtu.be/K3v4ubCndUU)**
+- **[John Popes vs Ven Fats](https://youtu.be/K-qqbkFT6XM)**
+- **[John Abram vs PJ Ven](https://youtu.be/R-KadUrOgBQ)**
+- **[John Pau vs Intan Fats](https://youtu.be/MV5pbWHsstM)**
+- **[Tel Popes vs Liz Kaizer](https://youtu.be/myG7rsntUoM)**
+- **[Abram Aljohn vs John Kaiz](https://youtu.be/q_fjmpyk6D8?si=HxTPZpHcAnSux4zd)**
+- **[Abram Aljohn vs Kaiz Liz](https://youtu.be/mFkeM6KIWaQ?si=soME2CXavfFzkca)**
+- **[Abram Ven vs John Popes](https://youtu.be/yL3-qDTdFns?si=e3tk7G0HRO02hmfK)**
+- **[Abram Fats vs Popes Kristelle](https://youtu.be/QB7LIuWzNxA?si=iKdbNrrNAiEHG_zs)**
+- **[Hype Boys vs Kenneth Pau](https://youtu.be/ccU9qrYAXYk?si=E8CRuT3I2TBpCkiP)**
+- **[Abram Popes vs Pj John](https://youtu.be/sNogU-bks0c?si=vQeziuLalRY3_p0F)**
+- **[Intan Aljohn vs Ven Kaiz](https://youtu.be/YqFoxkKmGQ4?si=1bLixO6109b6a65A)**
+- **[Abram Pj vs Kenneth John](https://youtu.be/Z_ui0CqcKak?si=EbB5UrHkWEl2sdYt)**
+- **[Kaiz Pau vs Intan Fats](https://youtu.be/C2wU24sK7do?si=917enUn1c_hWOS5p)**
+
+### April 09, 2025
 - **[Romeo Popes vs John JP](https://www.youtube.com/watch?v=6zbm6dM1bOw)**
 
 
