@@ -25,6 +25,10 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Kaiz Abe vs Rome Elmo](https://youtu.be/8msfkoxU6Jk?si=4eKGz98zMEXrdC7d)**
 - **[Abram Elmo vs John Aljohn](https://youtu.be/E1Xxm77I5G0?si=l-NVSLvya1ADZt0y)**
 - **[John Elmo vs Aljohn Abram](https://youtu.be/TqseeRM7S-I?si=tSMgXYmNh2hV7rsL)**
+- **[Kaizer PJ vs Elmo Rome](https://youtu.be/7WsRa0QRAz4?si=jMm27zBSqHpzmZSM)**
+- **[Andrew Rome vs John Abe (wide shot ver.)](https://youtu.be/8G6zUo6hsX4?si=iBgK4wr1glDW5asc)**
+- **[Ino PJ vs Kaizer Elmo](https://youtu.be/FC8vK8Q0axc?si=gB11Q91IT5kppYxg)**
+- **[Abram John vs Ven Andrew](https://youtu.be/rr4uNK4-JCM?si=fODG_OvsKu7uFMth)**
 
 
 ### April 26, 2025
