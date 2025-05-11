@@ -29,7 +29,7 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[John Rya vs Kaiz Popes](https://youtu.be/mj6Tnq-0M4k?si=fO0_IfPTzEr_4p-T)**
 
 
-### May 10, 2025
+### May 04, 2025
 - **[Elmo Mike vs John Ino](https://youtu.be/JOAdurFxeXk)**
 - **[Alexis Bien vs PJ John](https://youtu.be/orv5fkwkqqU)**
 - **[John Margaux vs PJ PatBan](https://youtu.be/Wg3GJBoiIB0)**
