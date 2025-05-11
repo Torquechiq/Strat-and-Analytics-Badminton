@@ -6,6 +6,20 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
+### May 04, 2025
+- **[Elmo Mike vs John Ino](https://youtu.be/JOAdurFxeXk)**
+- **[Alexis Bien vs PJ John](https://youtu.be/orv5fkwkqqU)**
+- **[John Margaux vs PJ PatBan](https://youtu.be/Wg3GJBoiIB0)**
+- **[John Abram vs Ino PJ](https://youtu.be/lCG3kx2gCck)**
+- **[Bien Pj vs John Elmo](https://youtu.be/xOjw_SQpoME?si=Gv8qb896DKYzZY4g)**
+- **[Alexis John vs Pj Abram](https://youtu.be/586jLIxeZyA?si=dm44dbv3G3dNhWi9)**
+- **[Bien Chel vs Alexis Abram](https://youtu.be/tfR3514RWi0?si=IJhhU2WGqC-xETjh)**
+- **[Pj Alexis vs Bien John](https://youtu.be/5vxfkG8JRPw?si=iOLMbwq7KI1rjqmr)**
+- **[Abram Bien vs Alexis John](https://youtu.be/uEa6bqppxGs?si=oEs16zyiJfCWIUpn)**
+- **[Abram John vs Alexis Bien (set 1)](https://youtu.be/clmBMPPapH0?si=CAYO15mf-DZNu1A6)**
+- **[Abram John vs Alexis Bien (set 2)](https://youtu.be/sbfHFeQMDmg?si=7-97ixaksosrt3bV)**
+
+
 ### May 01, 2025
 - **[John Abram vs Rome Ven](https://youtu.be/-pSezJO8Wdo)**
 - **[Popes PJ vs Abram Elmo](https://youtu.be/G276b-yiDtM)**
