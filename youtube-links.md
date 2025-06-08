@@ -7,24 +7,24 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court 
 ### June 06, 2025
--**[Ven-Cams vs Popes-Fats](https://youtu.be/Vm3qtsru374?si=vSHeAQR1UgEgkYgE)**
--**[Mga mashikif vs Cham-Pau](https://youtu.be/2KFYN2RLkUw?si=wiAxE87I7qiDLOAp)**
--**[Ven-PJ vs Intan-Fats](https://youtu.be/fD_hCkOOdgQ?si=Zw0z-EZSxdwfBO6g)**
--**[Cham-Abram vs Ven-Ems](https://youtu.be/l5IswdCckVM?si=SNg05ft2lQ7z4lxG)**
--**[Abram Ino vs Intan Popes](https://youtu.be/O-qh0eA7vXw?si=nuERQJZ0QIwlNpOK)**
--**[Cham John vs Intan Ven](https://youtu.be/gCp3ymI1Zjg)**
--**[Romeo Rya vs Popes John](https://youtu.be/fg9TZSpH4R4)**
--**[Rica Cams vs Pat Emerald](https://youtu.be/ffDmhGrE3Q0)**
--**[John Emerald vs Cham Pau](https://youtu.be/wbb_CW9agGo)**
--**[Margaux John vs Fats Intan](https://youtu.be/47A8FW3OJO0)**
--**[PJ Emerald vs Abram Elmo](https://youtu.be/xTdEJ4gKfQs)**
--**[Emerald John vs Ino Abram](https://youtu.be/baYZl_Ti6yU)**
--**[PJ Elmo vs John Intan](https://youtu.be/NQ_ovqqlhRg)**
--**[John Fats vs Romeo Cams](https://youtu.be/ywIcA9r5nRc)**
--**[Emerald Abram vs Maui Intan](https://youtu.be/7Zpt8prdRyo)**
--**[Romeo Margaux vs PJ Rya](https://youtu.be/QGr6zEgQydY)**
--**[Romeo Rica vs Ino Rya](https://youtu.be/eBb3k0hmwoI)**
--**[Pat Margaux vs Rica Pau](https://youtu.be/cuzqlDYI0Yc)**
+- **[Ven-Cams vs Popes-Fats](https://youtu.be/Vm3qtsru374?si=vSHeAQR1UgEgkYgE)**
+- **[Mga mashikif vs Cham-Pau](https://youtu.be/2KFYN2RLkUw?si=wiAxE87I7qiDLOAp)**
+- **[Ven-PJ vs Intan-Fats](https://youtu.be/fD_hCkOOdgQ?si=Zw0z-EZSxdwfBO6g)**
+- **[Cham-Abram vs Ven-Ems](https://youtu.be/l5IswdCckVM?si=SNg05ft2lQ7z4lxG)**
+- **[Abram Ino vs Intan Popes](https://youtu.be/O-qh0eA7vXw?si=nuERQJZ0QIwlNpOK)**
+- **[Cham John vs Intan Ven](https://youtu.be/gCp3ymI1Zjg)**
+- **[Romeo Rya vs Popes John](https://youtu.be/fg9TZSpH4R4)**
+- **[Rica Cams vs Pat Emerald](https://youtu.be/ffDmhGrE3Q0)**
+- **[John Emerald vs Cham Pau](https://youtu.be/wbb_CW9agGo)**
+- **[Margaux John vs Fats Intan](https://youtu.be/47A8FW3OJO0)**
+- **[PJ Emerald vs Abram Elmo](https://youtu.be/xTdEJ4gKfQs)**
+- **[Emerald John vs Ino Abram](https://youtu.be/baYZl_Ti6yU)**
+- **[PJ Elmo vs John Intan](https://youtu.be/NQ_ovqqlhRg)**
+- **[John Fats vs Romeo Cams](https://youtu.be/ywIcA9r5nRc)**
+- **[Emerald Abram vs Maui Intan](https://youtu.be/7Zpt8prdRyo)**
+- **[Romeo Margaux vs PJ Rya](https://youtu.be/QGr6zEgQydY)**
+- **[Romeo Rica vs Ino Rya](https://youtu.be/eBb3k0hmwoI)**
+- **[Pat Margaux vs Rica Pau](https://youtu.be/cuzqlDYI0Yc)**
 
 
 ### June 01, 2025
