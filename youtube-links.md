@@ -7,15 +7,15 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court 
 ### June 01, 2025
-**[Jp Reg vs Pau Rommel](https://youtu.be/tXE-nnjw11A?si=b6lxAGQCU19OWoiw)**
-**[Kaiz Liz vs Romeo Pau](https://youtu.be/QbSW6Nj1pEE?si=J9ax6_EfRJnB-F6J)**
-**[Romeo Rommel vs Kaiz Popes](https://youtu.be/1jPh7hBkzZE?si=nNyXo228VNODhXIb)**
-**[Dale Romeo vs Kaiz Reg](https://youtu.be/uMT_rcvraYI?si=Dlxv0Qaq9agDBtTR)**
-**[Kaiz Abram vs Ken Popes](https://youtu.be/U97zmKyG0xo?si=1R9DRqOdQgCIwGlY)**
-**[Reg PJ vs Kaiz Rommel](https://youtu.be/rlcwlRoJgDQ?si=Xsjza8D4efsLFawX)**
-**[Elmo Rome vs Ken Rommel](https://youtu.be/SD5-9F755h0?si=vWWN0aDLCoOvNTpy)**
-**[Dale Rome vs Ems Elmo](https://youtu.be/_PdBPnoOXqs?si=W1PU2vrguQgOaF-Z)**
-**[PJ Romeo vs Kaiz Liz](https://youtu.be/3fqxmj0ouk8?si=EVpyZoUf0lESf40l)**
+- **[Jp Reg vs Pau Rommel](https://youtu.be/tXE-nnjw11A?si=b6lxAGQCU19OWoiw)**
+- **[Kaiz Liz vs Romeo Pau](https://youtu.be/QbSW6Nj1pEE?si=J9ax6_EfRJnB-F6J)**
+- **[Romeo Rommel vs Kaiz Popes](https://youtu.be/1jPh7hBkzZE?si=nNyXo228VNODhXIb)**
+- **[Dale Romeo vs Kaiz Reg](https://youtu.be/uMT_rcvraYI?si=Dlxv0Qaq9agDBtTR)**
+- **[Kaiz Abram vs Ken Popes](https://youtu.be/U97zmKyG0xo?si=1R9DRqOdQgCIwGlY)**
+- **[Reg PJ vs Kaiz Rommel](https://youtu.be/rlcwlRoJgDQ?si=Xsjza8D4efsLFawX)**
+- **[Elmo Rome vs Ken Rommel](https://youtu.be/SD5-9F755h0?si=vWWN0aDLCoOvNTpy)**
+- **[Dale Rome vs Ems Elmo](https://youtu.be/_PdBPnoOXqs?si=W1PU2vrguQgOaF-Z)**
+- **[PJ Romeo vs Kaiz Liz](https://youtu.be/3fqxmj0ouk8?si=EVpyZoUf0lESf40l)**
 
 
 ### May 10, 2025
