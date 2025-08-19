@@ -128,7 +128,6 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 - **[Rica Romeo vs Van Rej](https://youtu.be/OHli1wNapEY?si=NXfbhpd_vPoQ9-oU)**
 - **[Kaiz Fats vs Abram Pau](https://youtu.be/dDQ9_1RI_xY?si=yPhQ9GedoSMKECOI)**
 - **[Dale Rej vs Abram Kenneth](https://youtu.be/HRO54Bw7_Us?si=bpj2cEgB56NWbtsl)**
-<img width="65" height="381" alt="image" src="https://github.com/user-attachments/assets/8a31cb4d-84fe-4210-a25b-3796b27199c5" />
 
 
 ### June 12, 2025
