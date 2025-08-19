@@ -1,4 +1,4 @@
-<img width="65" height="301" alt="image" src="https://github.com/user-attachments/assets/5a135dcd-6aee-4954-819f-976fa7adc9b8" /># Strat-and-Analytics-Badminton
+# Strat-and-Analytics-Badminton
 ![image](https://github.com/user-attachments/assets/61825e3b-4db1-47eb-a7f5-2966015fd0e5)
 
 
