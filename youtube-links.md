@@ -1,4 +1,4 @@
-<img width="62" height="341" alt="image" src="https://github.com/user-attachments/assets/52be9da1-aa38-4062-9751-f514ce47402e" /># Cubao-Rats-Badminton
+# Cubao-Rats-Badminton
 ![image](https://github.com/user-attachments/assets/61825e3b-4db1-47eb-a7f5-2966015fd0e5)
 
 
