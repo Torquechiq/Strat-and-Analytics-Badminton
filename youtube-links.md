@@ -7,6 +7,11 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 ## Tara Court 
 ### June 06, 2025
+John Reg vs Abram Fats
+<img width="163" height="21" alt="image" src="https://github.com/user-attachments/assets/88778e7b-65fc-4071-96fa-5e157cc5279d" />
+
+
+### June 06, 2025
 - **[Ven-Cams vs Popes-Fats](https://youtu.be/Vm3qtsru374?si=vSHeAQR1UgEgkYgE)**
 - **[Mga mashikif vs Cham-Pau](https://youtu.be/2KFYN2RLkUw?si=wiAxE87I7qiDLOAp)**
 - **[Ven-PJ vs Intan-Fats](https://youtu.be/fD_hCkOOdgQ?si=Zw0z-EZSxdwfBO6g)**
