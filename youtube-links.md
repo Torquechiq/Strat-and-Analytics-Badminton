@@ -1,4 +1,4 @@
-# Cubao-Rats-Badminton
+<img width="62" height="341" alt="image" src="https://github.com/user-attachments/assets/52be9da1-aa38-4062-9751-f514ce47402e" /># Cubao-Rats-Badminton
 ![image](https://github.com/user-attachments/assets/61825e3b-4db1-47eb-a7f5-2966015fd0e5)
 
 
@@ -139,6 +139,25 @@ Compilation of Badminton footage of Cubao Rats games. This is subdivided into di
 - **[Rome Michael vs Popes John](https://youtu.be/NvUGaD-1zSU)**
 - **[Elmo Kaizer vs Andrew Abe](https://youtu.be/1OHAwsmL8UU)**
 - **[Winona Popes vs Aljohn Kaizer](https://youtu.be/S-oPq5VyeuU)**
+- **[John Michael vs Pj Dale](https://youtu.be/D14uBFxijnQ?si=3tF5Fgx3PeGSqifu)**
+- **[Dale Reg vs Ems Abram](https://youtu.be/mVBfs4V_19M?si=kk9eipajul9FUjGa)**
+- **[Van Winona vs Rica Margaux](https://youtu.be/bxuW7WjqCZ4?si=htUa2nkSAH5B5CED)**
+- **[Ems Abram vs John Reg](https://youtu.be/txQS7q6eeGk?si=iowxnjeRNBQkgqEF)**
+- **[John Pj vs Abe Abram](https://youtu.be/5IH34JSo4F0?si=glozbeVnIsqE11t5)**
+- **[Ems Patban vs Reg Margaux](https://youtu.be/HegVXH9jvWg?si=dPjoRdetH-f_j-Jw)**
+- **[John Winona vs Michael Rica](https://youtu.be/nZN7mjjmEGs?si=v-yilIpKOyYmDyX4)**
+- **[Kaiz Reg vs Van Popes](https://youtu.be/Hi5Bw6gU0_I?si=yV7LlUHRMto6e3iH)**
+- **[Patban Margaux vs Andrew Rica](https://youtu.be/eCbXxeQRyyo?si=-t1uUgZJFydVXUSF)**
+- **[Pj Elmo vs Abram Michael](https://youtu.be/0L43Kzko4G8?si=_10cPHR-REW6qqzE)**
+- **[Dale Margaux vs John Ems](https://youtu.be/rNR5cTaB1WI?si=L0B8tgWXhQA9RndI)**
+- **[Abram Elmo vs Pj Ems (hindi to totoong laro)](https://youtu.be/Em9yiGIUvGQ?si=ykes9wBp7erSunCk)**
+- **[Pj Reg vs Michael Rica](https://youtu.be/DqXuWnumFyk?si=2BTVBeL94BneODoN)**
+- **[Dale Kaiz vs Abram John](https://youtu.be/wScFfO2jl0E?si=UBwsKnSLR3f_Yj4A)**
+- **[Abram Aljohn vs Van Popes](https://youtu.be/M4-yrFX3Geg?si=Xt3TYssbK0N9NGud)**
+- **[Kaiz Popes vs Aljohn John](https://youtu.be/MrS8-0ewjUY?si=KraB5-Pf3sjk_X0N)**
+- **[Abram Van vs John Popes](https://youtu.be/9wW3jFOG5oo?si=3i_VXTED5PHJI1h_)**
+<img width="62" height="341" alt="image" src="https://github.com/user-attachments/assets/ad54ad8e-63bb-48a5-b7c1-c5755b3c3f48" />
+
 
 
 ### June 06, 2025
