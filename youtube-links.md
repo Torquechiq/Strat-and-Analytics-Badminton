@@ -138,7 +138,7 @@ Compilation of Badminton footage of Cubao Rats games. This is subdivided into di
 - **[Aljohn Van vs Kaizer Rica](https://youtu.be/0aqB7iKkuCM)**
 - **[Rome Michael vs Popes John](https://youtu.be/NvUGaD-1zSU)**
 - **[Elmo Kaizer vs Andrew Abe](https://youtu.be/1OHAwsmL8UU)**
-- **[Winona Popes vs Aljohn Kaizerhttps://youtu.be/S-oPq5VyeuU)**
+- **[Winona Popes vs Aljohn Kaizer](https://youtu.be/S-oPq5VyeuU)**
 
 
 ### June 06, 2025
