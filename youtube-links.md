@@ -1,8 +1,8 @@
-# Strat-and-Analytics-Badminton
+# Cubao-Rats-Badminton
 ![image](https://github.com/user-attachments/assets/61825e3b-4db1-47eb-a7f5-2966015fd0e5)
 
 
-Compilation of Badminton footage of Strategy and Analytics team. This is subdivided into different badminton courts for easier browsing. Ur welcome!
+Compilation of Badminton footage of Cubao Rats games. This is subdivided into different badminton courts for easier browsing. Ur welcome!
 
 
 ## Tara Court 
