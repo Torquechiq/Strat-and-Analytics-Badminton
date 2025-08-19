@@ -1,4 +1,4 @@
-# Strat-and-Analytics-Badminton
+<img width="65" height="301" alt="image" src="https://github.com/user-attachments/assets/5a135dcd-6aee-4954-819f-976fa7adc9b8" /># Strat-and-Analytics-Badminton
 ![image](https://github.com/user-attachments/assets/61825e3b-4db1-47eb-a7f5-2966015fd0e5)
 
 
@@ -6,9 +6,140 @@ Compilation of Badminton footage of Strategy and Analytics team. This is subdivi
 
 
 ## Tara Court 
-### June 06, 2025
-John Reg vs Abram Fats
-<img width="163" height="21" alt="image" src="https://github.com/user-attachments/assets/88778e7b-65fc-4071-96fa-5e157cc5279d" />
+
+### August 02, 2025
+- **[Ems Dale vs John Ven](https://youtu.be/7NGrC5esn38)**
+- **[John Rya vs Popes Ems](https://youtu.be/NnVho3O9Ex4)**
+- **[Dale Ems vs Abram John](https://youtu.be/kEOd6o-v1tM)**
+- **[RomPau vs AljoIno and MarBan vs ElRya](https://youtu.be/Sj3MoHPhafM?si=Z74zhXa1AFwYVX-G)**
+- **[Abram Ino vs Ven John](https://youtu.be/k5SYbhSeq5Y?si=iLbJExA4RnTteTR9)**
+- **[Abram Ino vs Dale Kenneth](https://youtu.be/sB4SDqCZfEI?si=V-b9arnSiNduh-QL)**
+- **[John Ems vs Popes Ven](https://youtu.be/QhhbSM701o4?si=EoIJ-IgsQFP3ummC)**
+- **[Abram Dale vs John Ems](https://youtu.be/e3kk3sx00xQ?si=CcYDjee9FhugUegW)**
+- **[Abram Pau vs Rommel Margo](https://youtu.be/KRsbEOltJmg?si=ZcofHMew4C5iObIb)**
+- **[John Margo vs Ems Popes](https://youtu.be/C1RZKRo4LXU?si=m4hjJLAtR93KNWEy)**
+- **[John Ems vs Abram Ven](https://youtu.be/GfanyxJAbfs?si=gvwzA5_iflRQTl0g)**
+- **[Ven John vs Abram Ino](https://youtu.be/tHC4_DylfPI?si=vwDLK435cHn3zp-M)**
+- **[Rya Patban vs Kenneth Pau](https://youtu.be/wwI8RLFwqOw?si=Yp34WVNsZU4F4qRZ)**
+- **[Abram Kenneth vs Ven Ino](https://youtu.be/aaTo9xVN02E?si=UFmT59zfbbp4SCKe)**
+
+
+### July 27, 2025
+- **[Abram Van vs Hanz Jp](https://youtu.be/5bMTefaaUBg?si=DZ9LuzF9nUeIEjhM)**
+- **[Abram Hanz vs Ven Cham](https://youtu.be/Dri2NZNESxM?si=1miCpbI2nXETQNvL)**
+- **[Cham Pau vs Kaiz Van](https://youtu.be/0usgdKz5fTU?si=QMDuap85KZJyqGZ2)**
+- **[Abram Jp vs Van Kenneth](https://youtu.be/WTZZmba88fY?si=0mLRj7eCxLKchBeW)**
+- **[Jonathan Ella vs Kaiz Pau](https://youtu.be/HHesu_2ILzQ?si=H-XozSxgJGjZWlJu)**
+- **[Abram Kaiz vs John Hanz](https://youtu.be/VDdFqi6xWGI?si=L_NAyrZSBlC8ruzy)**
+- **[Cham Popes vs Ems Ven](https://youtu.be/LlWDA78ifKM?si=Mahk7pukSbbK0aeY)**
+- **[Abram John vs Cham Jonathan](https://youtu.be/5-3TQs6jvfU?si=VKfRBWrYYIihnW_9)**
+- **[Kaiz Mavi vs Van Jp](https://youtu.be/ZUi2lzdOY4w?si=1PVN00jj1F6N9XU6)**
+- **[Ella John vs Abram Winona](https://youtu.be/i4amU8mJymE?si=ijyholHVZ4urh-ly)**
+- **[Kaiz Kenneth vs Hanz Van](https://youtu.be/IpXoKVTkC8w?si=yXoCWlmUsLSMvXMo)**
+- **[Mavi Winona vs Kenneth Giselle](https://youtu.be/zSoJzpclVR4?si=Tx5UOvVV0yt38PLu)**
+- **[John Ven vs Hanz Ems](https://youtu.be/PILaPaLkLTE?si=EpyEkFOl23kOcfYZ)**
+- **[John Winona vs Ven Hanz](https://youtu.be/WBkqo_LkB0Y?si=6K1bNCyV0irhtKU5)**
+- **[Kaiz Winona vs Kenneth Jp](https://youtu.be/SP7N-z-jOsw?si=r7rRVMpO71J59JE7)**
+
+
+### July 20, 2025
+- **[Abram John vs Ems Maykel (Game 1)](https://youtu.be/TBlrbS2VvQ0?si=HXRKn1nU4HfophyY)**
+- **[Abram John vs Ems Maykel (Game 2)](https://youtu.be/zWvex5U0cBo?si=bpED2rumU1VgbIY2)**
+- **[Abram John vs Ems Maykel (Game 3)](https://youtu.be/ONmIoOHxQZc?si=ga640eXCz5Al47XS)**
+- **[Rej Jonathan vs John Popes](https://youtu.be/l8AN1b1oDSo?si=ASHVJ5x9FDld2sVd)**
+- **[Abram John vs Rej Jonathan](https://youtu.be/sqYv88KfupI?si=gss8L5RNb1jACVuq)**
+
+
+### July 06, 2025
+- **[PJ Kath vs Intan John](https://youtu.be/uh0ksk1m_sk?si=6Hw3SwjdtfpS_FN9)**
+- **[Abram Intan vs John PJ (Set 1)](https://youtu.be/XuFy30ekqN0?si=Rtc481LOYqZUsxA7)**
+- **[Abram Intan vs John PJ (Set 2)](https://youtu.be/AFhmkqu9xzQ?si=aCqbumWLM4gnC7cN)**
+- **[Ven Cham vs John Kath](https://youtu.be/JIFXPZXiRec?si=hBDFdNXi1quIUGwn)**
+- **[Fats John vs Dan Abram](https://youtu.be/n122xciirB4?si=r-aGYj8IYIojXZR-)**
+- **[Abram Fats vs John Dan](https://youtu.be/5R3kyaYuKqM?si=taWpa3VhFc3ZlnR4)**
+- **[Abram Pj vs Ven Cham](https://youtu.be/9pfomnreIco?si=-o6GwAmDB0wRl7xU)**
+
+
+
+### July 06, 2025
+- **[Rya John vs Ateng Reg](https://youtu.be/mZV6D1eEpqI)**
+- **[Romeo Rommel vs Intan Jonathan](https://youtu.be/VAu2Fv2pNkU)**
+- **[Elmo John vs Rommel Mike](https://youtu.be/Icr0b70jf88)**
+- **[PJ Kath vs Intan John](https://youtu.be/YNqH0_2_EAk)**
+- **[Intan Kath vs Abram John](https://youtu.be/x7zyeqCmiXI)**
+- **[Ven Cham vs John Kath](https://youtu.be/cR7S9z1C0JU)**
+- **[Pj Maykel vs Intan Jonathan](https://youtu.be/_xx404I7zUc?si=QvRzr5dZI0YNKVSR)**
+- **[Intam Fats vs Van Rommel](https://youtu.be/qL2_E48eMQM?si=c3IozX9RnDAHMQPC)**
+- **[Romeo Jonathan vs Elmo Maykel](https://youtu.be/1UA2U596K5c?si=V-JxVPr-w8-n2BYc)**
+- **[Abram Isran vs Intan Rommel](https://youtu.be/1aGMhi4462M?si=V1Ez46HeBHwivuwH)**
+- **[Elmo Jonathan vs Isran Romeo](https://youtu.be/tT93tS9lZ_M?si=h_ZZq8XDo2MIco-C)**
+- **[Abram Van vs Rej Rommel](https://youtu.be/66h1KBfaceo?si=wyOUJQtYf0pE5mlQ)**
+- **[Isran Jonathan vs Intan Ateng](https://youtu.be/kkXeaPmA7ck?si=2tgLudlOOASDYIXm)**
+- **[Abram Fats vs Pj Romeo](https://youtu.be/w3NuZQKo5dw?si=lXgHMI1wh9Py6vpx)**
+- **[Rommel Van vs Rya Elmo](https://youtu.be/nt7Bz1KxkTY?si=7UWxui8z3doWXreH)**
+- **[Rej Isran vs Pj Abram](https://youtu.be/wUyQYCR-U3Y?si=ST7Xwky0kJfS92Db)**
+- **[Ateng Rommel Vs Jonathan Romeo](https://youtu.be/JeUvjzrjJLI?si=BTj7m1QwMmk_GQGT)**
+- **[Elmo Fats vs Rica Van](https://youtu.be/ve8_-tJxJIw?si=i4ZWnm9sDrvgEBdM)**
+- **[Abram John vs Isran Maykel](https://youtu.be/urdPYE5mhHI?si=KxDW6kwnmdbMULii)**
+- **[Ateng Fats vs Rej Rya](https://youtu.be/9bLP5aeSRLM?si=s-Krqj2GF-ftw-ey)**
+- **[Jonathan Isran vs Abram Rica](https://youtu.be/_hzGkN6onf8?si=1dnFAMqtHU-7c08k)**
+- **[John Rommel vs Ateng Rej](https://youtu.be/qmiBvYGvk40?si=of6cW7uYWGNeHBX9)**
+- **[Abram Romeo vs Rej John](https://youtu.be/NfbnNcOUdao?si=SImMTRgbECobsowH)**
+- **[Jonathan Rommel vs Ateng Romeo](https://youtu.be/LMeUl2QpLuU?si=0i-NTgNP6VHDnwiq)**
+- **[Abram Jonathan vs John Rommel](https://youtu.be/dszwwzeN2_k?si=O58NQHSMVM8XbsbC)**
+
+### June 29, 2025
+- **[Elmo Emerald vs Reg John](https://youtu.be/9tOQbECT_Vs)**
+- **[Abram Emerald vs Intan Reg](https://youtu.be/Q7KOvIMkdN8)**
+- **[Bibay Isran vs Romeo Fats](https://youtu.be/1lHP31hNPGE)**
+- **[Bibay Fats vs Elmo JohnDoe](https://youtu.be/bkZmkci8CUk)**
+- **[Rommel John vs Kaizer Intan](https://youtu.be/WcVHuwwC5fY)**
+- **[Emerald Athena vs Abram Reg](https://youtu.be/ly6YE-lJI-g)**
+- **[Kaizer Athena vs Rommel Reg](https://youtu.be/z3hPNImuacM)**
+- **[Rommel Intan vs Ado Jonathan](https://youtu.be/DRO-YP0W5KI?si=XvdeiXF-vRnjG57U)**
+- **[Elmo Telle vs Winona Giselle](https://youtu.be/TGNUha9Hycc?si=DWw-Gy1UY5Ixzuit)**
+- **[Abram Fats vs Popes Romeo](https://youtu.be/KcCpyH2OEnI?si=XdXDeM3Dn_8htAfF)**
+- **[Ems Rya vs Abram Telle](https://youtu.be/8GEdmClf4oo?si=22fL_iLvbclX3M8A)**
+- **[John Isran vs Intan Romeo](https://youtu.be/5vJypYJSR64?si=LNf_RXATF7S5ZkNd)**
+- **[Telle Popes vs Elmo Andrei](https://youtu.be/Kq1oLvXvhwI?si=D8n_IlAsPPfdmo0b)**
+- **[Rya Giselle vs Romeo Cj](https://youtu.be/bQACYZ-o19M?si=o7H-yxKcfAi6w_eE)**
+- **[Kaiz Popes vs Rommel John](https://youtu.be/0FhUXqHbcwc?si=t9k2BbT6p5VWGOML)**
+- **[Abram Isran vs Ems Rej](https://youtu.be/kT7anfofvho?si=DwPjSQTke_dgPXxR)**
+- **[Ateng Giselle vs John Rya (Baorat duo)](https://youtu.be/thWhGkdqFE0?si=sogvnQXQIIaHm3nL)**
+- **[Intan Ateng vs Abram Isran](https://youtu.be/zfV3lXEQuAs?si=r2nQ4HYnromnhQy4)**
+
+### June 22, 2025
+- **[John Reg vs Abram Fats](https://youtu.be/TXrqISsa_cA)**
+- **[John Kenneth vs Abram Van (Palarong UPLB 2025)](https://youtu.be/UHpXZt39rKc)**
+- **[Kaizer Abram vs Reg John](https://youtu.be/jy-98AEZ6ZI)**
+- **[Abram Romeo vs John PJ](https://youtu.be/xfAZeVY3UlY)**
+- **[Dale Kenneth vs John Intan](https://youtu.be/_44k1cgTKyA)**
+- **[Dale Kenneth vs John Intan | Set 2](https://youtu.be/jKYH3Mc3h8g)**
+- **[Intan Van vs Reg Dale](https://youtu.be/tzwKvl2lqgs)**
+- **[Romeo Van vs Intan Fats](https://youtu.be/G1BX9_VcTgg)**
+- **[John vs Kaizer](https://youtu.be/L6vTgJPYeiQ)**
+- **[John Van vs Romeo Kaizer](https://youtu.be/Rx_x92VWFi8)**
+- **[John Pau vs Kaizer Rica](https://youtu.be/oky1zsuZDds)**
+- **[Van Rica vs Kenneth Pau](https://youtu.be/r2eg66Yqxc8)**
+- **[Kenneth Pau vs Fats Intan](https://youtu.be/9wdWhx1VnP8?si=0vM5-xNEPnevMoRz)**
+- **[John Abram vs Romeo Intan](https://youtu.be/ZK8lfTR4n1s?si=BYXuVJeO8hHnp92e)**
+- **[John Kaiz vs Intan Van](https://youtu.be/rvAm2mUuefs?si=jZ8MLYhwzrQOwxUq)**
+- **[Abram Fats vs Romeo Kaiz](https://youtu.be/ZnOns4Jh3hY?si=eL4G00FiWsKczlYx)**
+- **[Rica Romeo vs Van Rej](https://youtu.be/OHli1wNapEY?si=NXfbhpd_vPoQ9-oU)**
+- **[Kaiz Fats vs Abram Pau](https://youtu.be/dDQ9_1RI_xY?si=yPhQ9GedoSMKECOI)**
+- **[Dale Rej vs Abram Kenneth](https://youtu.be/HRO54Bw7_Us?si=bpj2cEgB56NWbtsl)**
+<img width="65" height="381" alt="image" src="https://github.com/user-attachments/assets/8a31cb4d-84fe-4210-a25b-3796b27199c5" />
+
+
+### June 12, 2025
+- **[John Aljohn vs Abe Rome](https://youtu.be/sOlaouHze7c)**
+- **[Margaux Mike vs John Dale](https://youtu.be/mhO6t4Swcwc)**
+- **[Aljohn Andrew vs Abe Rome](https://youtu.be/TqHzgAVBaJw)**
+- **[Kaizer Popes vs Van Dale](https://youtu.be/0QDzSVrY_Pk)**
+- **[Aljohn Van vs Kaizer Rica](https://youtu.be/0aqB7iKkuCM)**
+- **[Rome Michael vs Popes John](https://youtu.be/NvUGaD-1zSU)**
+- **[Elmo Kaizer vs Andrew Abe](https://youtu.be/1OHAwsmL8UU)**
+- **[Winona Popes vs Aljohn Kaizerhttps://youtu.be/S-oPq5VyeuU)**
 
 
 ### June 06, 2025
