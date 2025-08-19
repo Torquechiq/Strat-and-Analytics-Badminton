@@ -156,7 +156,6 @@ Compilation of Badminton footage of Cubao Rats games. This is subdivided into di
 - **[Abram Aljohn vs Van Popes](https://youtu.be/M4-yrFX3Geg?si=Xt3TYssbK0N9NGud)**
 - **[Kaiz Popes vs Aljohn John](https://youtu.be/MrS8-0ewjUY?si=KraB5-Pf3sjk_X0N)**
 - **[Abram Van vs John Popes](https://youtu.be/9wW3jFOG5oo?si=3i_VXTED5PHJI1h_)**
-<img width="62" height="341" alt="image" src="https://github.com/user-attachments/assets/ad54ad8e-63bb-48a5-b7c1-c5755b3c3f48" />
 
 
 
