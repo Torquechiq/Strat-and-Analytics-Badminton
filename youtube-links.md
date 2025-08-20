@@ -1,5 +1,5 @@
 # Cubao-Rats-Badminton
-// ![image](https://github.com/user-attachments/assets/61825e3b-4db1-47eb-a7f5-2966015fd0e5)
+<!-- ![image](https://github.com/user-attachments/assets/61825e3b-4db1-47eb-a7f5-2966015fd0e5) -->
 
 ![cubao rats](https://github.com/user-attachments/assets/aac9a007-9241-447f-9080-f844584a59a7)
 
