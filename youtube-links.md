@@ -10,6 +10,14 @@ Compilation of Badminton footage of Cubao Rats games. This is subdivided into di
 
 ## Tara Court 
 
+### August 21, 2025
+- **[John Neri vs Fats Tim](https://youtu.be/NfbrP35cOE0)**
+- **[Abe Abram vs Dale John](https://youtu.be/2lZ1WcS738o)**
+- **[Celso Kaizer vs Isran Reg](https://youtu.be/9B9PPI6x8Rg)**
+- **[Isran Reg vs Kaizer Celso](https://youtu.be/rs-E21raCME)**
+- **[Ems Intan vs John Dale](https://youtu.be/EwusTnLL93o)**
+- **[Fats John vs Dale Reg](https://youtu.be/w9aRkLIpAls)**
+
 ### August 02, 2025
 - **[Ems Dale vs John Ven](https://youtu.be/7NGrC5esn38)**
 - **[John Rya vs Popes Ems](https://youtu.be/NnVho3O9Ex4)**
