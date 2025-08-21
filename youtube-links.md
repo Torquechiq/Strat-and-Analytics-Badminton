@@ -17,6 +17,8 @@ Compilation of Badminton footage of Cubao Rats games. This is subdivided into di
 - **[Isran Reg vs Kaizer Celso](https://youtu.be/rs-E21raCME)**
 - **[Ems Intan vs John Dale](https://youtu.be/EwusTnLL93o)**
 - **[Fats John vs Dale Reg](https://youtu.be/w9aRkLIpAls)**
+- **[Abram Neri vs John Van](https://www.youtube.com/clip/UgkxCHN6YNSjgxu5bGJ_-7OMzBt1riCxC4Gc)**
+- **[Abram Isran vs John Ems](https://www.youtube.com/watch?v=ta74CJp-Zn4)**
 
 ### August 02, 2025
 - **[Ems Dale vs John Ven](https://youtu.be/7NGrC5esn38)**
